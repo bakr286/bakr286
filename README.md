@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ahmed Abobakr
-- 📫 How to reach me Ahmed.abobakr1111111@gmail.com
+- 📫 How to reach me ahmed.abobakr1111111@gmail.com
 - ⚡ Fun fact: I like souls games
 
 <!---
